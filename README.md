@@ -222,4 +222,4 @@ Nole Cinema is offered as a **full free version** with all features and updates 
 Ready to elevate your Kodi experience? **Download Nole Cinema now and enjoy streaming a world of free movies today!**
 
 ---
-**Last updated:** 2026-10-01 23:03:27 UTC
+**Last updated:** 2026-10-02 05:09:31 UTC
